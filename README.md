@@ -1,0 +1,1 @@
+This Dashboard is used to effectively presenting the data, you can gain valuable insights into your marketing campaign performance, identify areas for improvement, and optimize future campaigns for better results.
